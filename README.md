@@ -8,7 +8,7 @@ Excel finance data analyst skills
 Reading
 Interior design
 Painting and other forms of creative expression
-## Conncect with me
+## Connect with me
 - [GitHub](https://github.com/rkburch22)
 - https://www.linkedin.com/in/rebecca-burch-a602503b3/
 
